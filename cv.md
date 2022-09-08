@@ -4,10 +4,10 @@
 ### contacts/soctial
 
 **Country:** Belarus  
-**Telergam:** @Yelltiy  
+**Telergam:** [Yelltiy](https://t.me/Yelltiy)  
 **Github:** [Lights0n](https://github.com/Lights0n)  
 **Email:** [lyadouskiy](lyadouskiy@gmail.com)  
-**Discord:** @Lights0n#6162  
+**Discord:** [Lights0n#6162](https://discord.com/users/6162)  
 
 ### Some words about me
 
